@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI ML
 - 💞️ I’m looking to collaborate on Data Science project
 - 📫 How to reach me IG: arka.dattaa
-- 😄 how to pronounce myy name: ORKO
+- 😄 how to pronounce my name: ORKO
 - ⚡ Fun fact: skibidi
 
 <!---
