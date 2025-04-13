@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arkapravadatta
-- 👀 I’m interested in 🚀🪐🌕🌑☄️🛸
+- 👀 I’m interested in 🚀🪐🤖🌑☄️🛸
 - 🌱 I’m currently learning AI ML
 - 💞️ I’m looking to collaborate on Data Science project
 - 📫 How to reach me IG: arka.dattaa
